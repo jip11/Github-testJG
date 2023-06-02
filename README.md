@@ -1,3 +1,3 @@
 # Github-testJG
 # valami
-# pénisz kaktusz
+# kuki kaktusz
